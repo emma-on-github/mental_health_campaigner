@@ -2,7 +2,7 @@
 
 ### [Time To Change](https://www.time-to-change.org.uk/)
 
--	**Time To Change Champion (December 2014 to March 2020)**
+-	**Time To Change Champion (December 2014 - March 2020)**
 -	Assisted West Oxfordshire District Council, Witney Town Council, Oxford Health NHS Foundation Trust, Abingdon & Witney College and Guideposts Trust to coordinate and participate at Time To Change events within Oxfordshire, UK
 -	Campaigned and attended meetings with both local (Oxfordshire) and national (UK) government figures including Robert Courts MP and The Rt Hon David Cameron to raise awareness of this project
 -	Completed method statements and risk assessments for Health & Safety requirements
@@ -24,12 +24,12 @@
 -	Reviewed health and social care factsheets and provided feedback within set time scales
 
 **Website Development Panel Volunteer (September 2017)**
--	Advised on the website development of [Mental Health & Money Advice](https://www.mentalhealthandmoneyadvice.org/), with service user feedback within set timeframe
+-	Advised on the website development of [Mental Health and Money Advice](https://www.mentalhealthandmoneyadvice.org/), with service user feedback within set timeframe
 
 
 ### [Guideposts Trust](https://guideposts.org.uk/)
 
--	**Volunteer Administrator (July 2019 – Nov 2020)**
+-	**Volunteer Administrator (July 2019 – November 2020)**
 -	Contributed towards [blog posts](https://guideposts.org.uk/pauls-blogs/) on Autism Spectrum Condition, Mental Health, LGBTQI+ and Photography
 -	Effective time management and organisational skills to undertake online research and create content for development into webpages
 -	Reviewed future publications and provided feedback within set time scales
