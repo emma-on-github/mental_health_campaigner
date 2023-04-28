@@ -12,20 +12,17 @@
 -	Promoted training sessions via social media and networking groups
 -	[The Oxford Mail - Mental health ‘superhero’s’ wanted (31st October 2017)](https://www.oxfordmail.co.uk/news/news_bites/15630693.mental-health-superheroes-wanted/)
 
-
 ### [Rethink Mental Illness](https://www.rethink.org/)
 
-**Oxford Campaigners for Change Volunteer (July 2020 – January 2022)**
--	Exchanged innovative ideas around mental health and inclusion, networked, and took positive action to change perceptions and improve people’s lives
--	Campaigned with the team during meetings with UK Members of Parliament including Robert Courts and Anneliese Dodds
+- **Oxford Campaigners for Change Volunteer (July 2020 – January 2022)**
+- Exchanged innovative ideas around mental health and inclusion, networked, and took positive action to change perceptions and improve people’s lives
+- Campaigned with the team during meetings with UK Members of Parliament including Robert Courts and Anneliese Dodds
 
+- **Information Panel Volunteer (November 2017 – May 2021)**
+- Reviewed health and social care factsheets and provided feedback within set time scales
 
-**Information Panel Volunteer (November 2017 – May 2021)**
--	Reviewed health and social care factsheets and provided feedback within set time scales
-
-**Website Development Panel Volunteer (September 2017)**
--	Advised on the website development of [Mental Health and Money Advice](https://www.mentalhealthandmoneyadvice.org/), with service user feedback within set timeframe
-
+- **Website Development Panel Volunteer (September 2017)**
+- Advised on the website development of [Mental Health and Money Advice](https://www.mentalhealthandmoneyadvice.org/), with service user feedback within set timeframe
 
 ### [Guideposts Trust](https://guideposts.org.uk/)
 
@@ -33,7 +30,6 @@
 -	Contributed towards [blog posts](https://guideposts.org.uk/pauls-blogs/) on Autism Spectrum Condition, Mental Health, LGBTQI+ and Photography
 -	Effective time management and organisational skills to undertake online research and create content for development into webpages
 -	Reviewed future publications and provided feedback within set time scales
-
 
 ### [Oxford Health NHS Foundation Trust](https://www.oxfordhealth.nhs.uk/)
 
