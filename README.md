@@ -1,3 +1,5 @@
+### Paul John Hicks
+
 ### Mental Health Campaigner
 
 ### [Time To Change](https://www.time-to-change.org.uk/)
