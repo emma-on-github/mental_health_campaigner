@@ -12,7 +12,7 @@ Information Panel Volunteer (November 2017 – May 2021)
 -	Reviewed health and social care factsheets and provided feedback within set time scales
 
 Website Development Panel Volunteer (September 2017)
--	Advised on the website development of [Mental Health & Money Advice](https://www.mentalhealthandmoneyadvice.org/), with service user feedback within set timeframe
+-	Advised on the website development of [Mental Health & Money Advice](https://www.mentalhealthandmoneyadvice.org/) with service user feedback within set timeframe
 
 ### [Guideposts Trust](https://guideposts.org.uk/)
 
