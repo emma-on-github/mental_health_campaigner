@@ -29,8 +29,7 @@ Website Development Panel Volunteer (September 2017)
 -	Managed MS Excel database of stallholder’s attending community events to assist with resource planning
 -	Designed and carried out customer surveys utilising SurveyMonkey and then presented the findings within MS Excel to contribute towards future goal setting
 -	[Volunteers’ week: Volunteer showcase (6th June 2018)](https://www.oxfordhealth.nhs.uk/news/volunteers-week-volunteer-showcase/)
--	[Start a conversation about mental health on time to talk day (4th February 2019)](
-https://www.oxfordhealth.nhs.uk/news/start-a-conversation-about-mental-health-on-time-to-talk-day/)
+-	[Start a conversation about mental health on time to talk day (4th February 2019)](https://www.oxfordhealth.nhs.uk/news/start-a-conversation-about-mental-health-on-time-to-talk-day/)
 
 ### [Restore](https://www.restore.org.uk/)
 
