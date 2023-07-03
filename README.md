@@ -32,7 +32,6 @@ Website Development Panel Volunteer (September 2017)
 -	[Start a conversation about mental health on time to talk day (4th February 2019)](
 https://www.oxfordhealth.nhs.uk/news/start-a-conversation-about-mental-health-on-time-to-talk-day/)
 
-
 ### [Restore](https://www.restore.org.uk/)
 
 -	Steering Group Committee Member (November 2017 – March 2018)
