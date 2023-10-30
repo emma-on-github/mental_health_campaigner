@@ -1,4 +1,4 @@
-### Emma Louise Hicks
+### Paul John Hicks
 
 ### Mental Health Campaigner
 
